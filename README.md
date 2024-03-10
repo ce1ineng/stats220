@@ -9,3 +9,5 @@ blah blah blah
 *italics*
 
 slides from lecture 1A.2 has more information
+
+Add a link to other websites like your linkedin
