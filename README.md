@@ -7,4 +7,5 @@ blah blah blah
 **bold**
 
 *italics*
+
 slides from lecture 1A.2 has more information
