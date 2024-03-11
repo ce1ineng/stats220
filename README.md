@@ -14,4 +14,4 @@ Finding a spot to studying while waiting in between classes is always such a str
 3. OGGB
 
 ### My socials 
-If you are looking for your next intern please contact me on my [*Linkedin*](www.linkedin.com/in/celine-ng-194698227) because I desperately need one. 
+If you are looking for your next intern please contact me on my [*Linkedin*](https://www.linkedin.com/in/celine-ng-194698227) because I desperately need one. 
